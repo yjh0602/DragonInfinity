@@ -12,7 +12,7 @@
 
 제작자: 이성빈, 윤재학, 한승호, 김춘호
 
-Youtube: https://www.youtube.com/watch?v=sxjjXvwz_gk
+Youtube: https://www.youtube.com/watch?v=juQa9-mAcsQ
 
 기여 (Assets - 111_YJH)
 
